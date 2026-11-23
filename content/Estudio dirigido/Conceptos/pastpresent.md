@@ -1,0 +1,1 @@
+Este término de **King (2011)** busca dar sentido a la compleja construcción del mundo, no solo al **rechazar la linealidad del tiempo**, sino también al **resistirse a la noción de una ruptura radical con el pasado. El pasado y el presente son inseparables. Se fusionan constantemente, co-inventan y re-crean mundos.**

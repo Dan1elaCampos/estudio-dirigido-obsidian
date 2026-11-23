@@ -1,0 +1,1 @@
+**Vigilancia, recelo y presunción de amenaza (típicamente sexual/pedófila) que recae sobre los varones en espacios de educación infantil, por el solo hecho de ser hombres en un campo feminizado**, un efecto institucionalizado que los obliga a autorregular constantemente su conducta y su presencia.

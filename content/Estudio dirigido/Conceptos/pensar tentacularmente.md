@@ -1,0 +1,1 @@
+Siguiendo la invitación de [[Haraway]] (2016) a pensar de manera tentacular, nos alejamos de los viejos principios de la filosofía occidental, como el excepcionalismo humano y el individualismo limitado, para **considerar qué otras historias y mundos surgen cuando se pone el foco en lo más que humano.** 

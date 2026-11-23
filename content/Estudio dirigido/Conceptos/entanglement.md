@@ -1,0 +1,1 @@
+**Noción material-discursiva que describe cómo fenómenos aparentemente distintos** (colonialismo, capitalismo, heteropatriarcado blanco; cuerpos, objetos, normas) **están constitutivamente imbricados, no son separables analíticamente.** 
